@@ -3,6 +3,7 @@
 
 ### 免费VPN推荐，无限流量（第一款）：https://youtu.be/DI3xQ7HIkxc
 ### 免费VPN推荐，无限流量（第二款）：https://youtu.be/W0SeMgm1slE
+### 大牌VPN免费使用（第二款）：https://youtu.be/xRBdTYwqvpc
 
 <br>
 *免费VPN长期更新，建议收藏。
