@@ -5,6 +5,7 @@
 ### 2、免费VPN推荐，无限流量（第二款）：https://youtu.be/W0SeMgm1slE
 ### 3、大牌VPN免费使用（第三款）：https://youtu.be/xRBdTYwqvpc
 ### 4、搭建免费节点，永久免费翻墙：https://youtu.be/1uI21vdlpMY
+### 5、5款免费VPN（IOS版）：https://youtu.be/wLxnDwbwNmk?si=uUhwdzD1b9J-p9Ay
 
 <br>
 *免费VPN长期更新，建议收藏。
