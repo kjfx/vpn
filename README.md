@@ -7,6 +7,7 @@
 ### 4、搭建免费节点，永久免费翻墙：https://youtu.be/_kpanU7lVBQ
 ### 5、两款免费VPN（IOS版）：https://youtu.be/qXJkOVJGc6Q
 ### 6、免费翻墙（全平台）：https://youtu.be/dHVc7tnnJDg?si=iJXRgdqBa5UrtZPY
+### 7、2款免费VPN：https://youtu.be/Rl8_hgDF3Kc?si=s1Rg3D0MPRhAo2EL
 
 <br>
 *免费VPN长期更新，建议收藏。
